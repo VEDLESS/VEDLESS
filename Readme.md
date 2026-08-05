@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 🔭 I’m currently working on  FullStack Projects and Data Structures.<br>- 🏗️ I’m looking to collaborate on  FullStack Projects.<br>- 🤝 I’m looking for help with  Internship opportunities.<br>- 🌱 I’m currently learning Competitive Programming.  <br>- 💬 Ask me about FullStack Development.<br>- ⚡ Fun fact :- I love playing Video games  🎮 <br>- 📩 Reach me at vedantanasuneaa@gmail.com
+- 🔭 I’m currently working on  FullStack Projects and Data Structures.<br>- 🏗️ I’m looking to collaborate on  FullStack Projects.<br>- 🤝 I’m looking for help with Full Time Job opportunities.<br>- 🌱 I’m currently learning Competitive Programming.  <br>- 💬 Ask me about FullStack Development.<br>- ⚡ Fun fact :- I love playing Video games  🎮 <br>- 📩 Reach me at vedantanasuneaa@gmail.com
 
 
 ## 🌐 Socials:
